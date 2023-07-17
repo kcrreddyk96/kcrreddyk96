@@ -1,4 +1,4 @@
-<h1 align="center">### Hi there 👋
+<h1 align="center">Hi there 👋
 <h1 align="center">I'm Chandra Shekar Reddy</h1>
 <h3 align="center">A passionate Quality Test Engineer from India</h3>
 

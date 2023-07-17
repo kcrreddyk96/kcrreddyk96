@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **kcrreddyk96@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/17KLn-TqPSuf2SrhFtwjpFVHXeaunufzl/view?usp=sharing](https://drive.google.com/file/d/16dpmUXDyM3zf_Gr_qkS8hWOSF-8H4ERV/view?usp=sharing)]
+- 📄 Know about my experiences [https://drive.google.com/file/d/17KLn-TqPSuf2SrhFtwjpFVHXeaunufzl/view?usp=sharing](https://drive.google.com/file/d/16dpmUXDyM3zf_Gr_qkS8hWOSF-8H4ERV/view?usp=sharing)
 
 - ⚡ Fun fact **I Think I am Technovert**
 
